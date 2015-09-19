@@ -1,7 +1,7 @@
 <b><u>Beginnings of Infinity</u></b>
 
 
-<u>Identity cannot be described, the same way we cannot describe a noun.</u>
+<u>Identity cannot be described, the same way we cannot describe a noun.<u>
 
 When we speak of identity, it is often that we begin thinking of distinguishing characteristics of a particular entity. We think of how others perceive us. We think of our responsibilities and social expectations that binds us to the service of our community.
 
