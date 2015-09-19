@@ -9,7 +9,7 @@ It becomes tiresome, a tedious affair to introduce yourself, without sounding to
 
 The Greek motto “Know Thyself” encourages us to understand ourselves. And how often do we think of ourselves truly, except for the times we are self-conscious in a public place? Why do we persist on defining characteristics, when identity is a continuity. There is no problem in admitting that we seem the same, within the regeneration of our consciousness. 
 
-<u>Identity is neither pre-defined by our actions nor our perceptions of it.</u>
+*Identity is neither pre-defined by our actions nor our perceptions of it.*
 
 In the rise of economic development, we can say that we have become more “cultured”. We have the resources, allowing the cultivation of innovation and expression (in an integrative manner). As we continue to discover and actualise the many factors that makes life “better”, “happier”, it becomes a matter of choice.
 
