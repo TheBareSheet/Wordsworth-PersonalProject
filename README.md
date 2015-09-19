@@ -1,4 +1,4 @@
-<b><u>Beginnings of Infinity</u></b>
+**Beginnings of Infinity**
 
 
 *Identity cannot be described, the same way we cannot describe a noun.*
