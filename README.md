@@ -1,5 +1,5 @@
 Note:
-This project is created by Sum Chuen Li, student at Renaissance College. Content is not to be redistributed or used without author consent and credit. 
+*This project is created by Sum Chuen Li, student at Renaissance College. Content is not to be redistributed or used without author consent and credit.*
 
 **Project Topic:**
 
