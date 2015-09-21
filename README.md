@@ -17,6 +17,6 @@ One can say, there is no problem in finding conflict in change, being naturally 
 
 But, “I know nothing”, Famous Greek philosopher Socrates once said. When facing more and more daunting feelings, is it more important to make a decision or to understand why? In the example of double standards, should we care about the nature of the inequality or the concerns that motivate the decision? 
 
-<u>How do we ask?</u>
+*How do we ask?*
 
 While the actions that define our identity are in most contradiction, we are restricted to only step back, into the complexity of our enigma. However, infinity is reality, its perpetual flux and movement. The problem, is our attempt to find and resolve a non-existent one. The solution, portrayed in many forms, appearing in different times, is the flexibility in accommodating the unknown. 
